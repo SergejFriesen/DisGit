@@ -1,1 +1,1 @@
-Sergej Friesen
+Sergej Fries
